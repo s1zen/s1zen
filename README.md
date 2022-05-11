@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @s1zen
+- 👀 I’m interested in Python and fullstack developer
+- 🌱 I’m currently learning Python!
+- 💞️ I am glad for new collaborations
+- 📫 How to reach me Telegram: @s1zenOne Kwork.ru https://kwork.ru/user/sklopt
